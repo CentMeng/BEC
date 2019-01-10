@@ -46,4 +46,33 @@ Miss Lewis:Same here（同样同样）.I'm looking forward to working with you�
 <b>look forward to doing sth 希望做某事</b>
 
 
+### Dialogue 2 The Lunch Meeting
+
+Mr.Lee: You must be（肯定的推测） Miss King.I'm Leo Lee.Wow, you look just as you described on the phone（你和电话里描述的一模一样）.
+
+Miss King:Yes,I am Miss King.But please call me Betty. It's great to meet you,Mr.Lee. Thanks for suggesting a lunch meeting.I've got a hectic schedule（我的日程安排非常紧张）,so this is a great way to kill two birds with one stone.
+
+<font color="red">
+<b>kill two birds with one stone 一石二鸟</b>
+</font>
+
+Mr.Lee:Me,too, and it's my pleasure.You must be wondering who my friend here is.I've taken the liberty of inviting my assistant(很冒昧的邀请了我的助手),Mr.Young.He'll be taking a few notes.
+
+Miss King:Great! Nice to meet you.It's always good to have someone to keep track of things when you're brainstorming（头脑风暴）.
+
+<font color="red">
+<b>keep track of 对...进行跟踪</b>
+</font>
+
+Mr.Young:Nice to meet you,too.
+Mr.Lee:Well,let's go through the buffet(自助餐) line and then we can get down to business.
+
+<font color="red">
+<b>get down to business 谈生意</b>
+<b>Business is business 公事公办</b>
+</font>
+
+
+
+
 
